@@ -12,8 +12,6 @@
 1. [Locate the Music in - Apple music copy the link](https://music.apple.com/us/new)
 2. [paste the link here and Downlaod](https://aaplmusicdownloader.com/)
 
-## 
-
 </br>
 
 **Music Download - Option # Tamil Only**
