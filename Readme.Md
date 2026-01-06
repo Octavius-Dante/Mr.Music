@@ -7,6 +7,30 @@
 
 ### Focus ost list 
 
+- TENET
+- DUNKIRK
+- INTERSTELLAR
+- CYBERPUNK 2077 
+- DRIVE 
+- DUNE 
+- AD ASTRA 
+- INCEPTION 
+- THE BATMAN
+- THE DARK KNIGHT TRILOGY 
+- BLADE RUNNER 2049 
+
+### Other Notable OST 
+
+- Half life 2
+- Half life 2 - Episode 1 
+- Half life 2 - Episode 2
+- Witcher Trilogy (1,2,3) + DLC of withcer 3 OST 
+- God of war Ragnarok
+- God of war (2018)
+- GTA SAN ANDREAS - RADIO STATIONS + OST
+- GTA 4 - RADIO STATIONS + OST
+- GTA 5 - RADIO STATIONS + OST
+- GTA VICE CITY - RADIO STATIONS + OST
 
 
 
