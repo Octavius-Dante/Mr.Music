@@ -96,7 +96,7 @@
 
 </br></br>
 
-- All soundtracks from all season - Strange things 
+- All soundtracks from all season - **STRANGER THINGS**
 
 ---
 
