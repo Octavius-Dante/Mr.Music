@@ -94,6 +94,28 @@
 
 </br>
 
+### Other Notable Movies OST
+
+- STAR WARS EPISODE 1 - PHANTOM MENACE 
+- STAR WARS EPISODE 2 - CLONE WARS 
+- STAR WARS EPISODE 3 - REVENGE OF THE SITH
+- STAR WARS EPISODE 4 - NEW HOPE 
+- STAR WARS EPISODE 5 - The Empire Strikes Back
+- STAR WARS EPISODE 6 - Return of the Jedi
+- STAR WARS ROGUE ONE
+- STAR WARS The Force Awakens
+- STAR WARS The Rise of Skywalker
+- STAR WARS The Last Jedi
+- Solo: A Star Wars Story
+- STAR WARS The Clone Wars
+- STAR WARS Rebels
+- STAR WARS Spark of Rebellion: Part 1
+- JURASSIC PARK ALL MOVIES
+- INDIANA JONES ALL MOVIES 
+- E.T
+
+</br>
+
 ### Other Notable SOUTH ASIAN MOVIES OST 
 
 - MIRAI (TAMIL) + (TELUGU)
@@ -104,9 +126,30 @@
 - RRR (TAMIL)
 - KALKI 2898 AD - 1 + 2 (TAMIL) 
 
-</br></br>
+</br>
 
-- All soundtracks from all season - **STRANGER THINGS**
+### Other Notable TV SERIES OST 
+
+- All soundtracks from all season - STRANGER THINGS
+- All soundtracks from all season - Person of Interest
+- All soundtracks from all season - Breaking bad
+- All soundtracks from all season - Doctor House
+- All soundtracks from all season - GAME OF THRONES
+- All soundtracks from all season - HOUSE OF DRAGONS
+- All soundtracks from all season - MANDALORIAN
+- All soundtracks from all season - OBI WAN KENOBI
+- All soundtracks from all season - ANDOR
+- All soundtracks from all season - STAR WARS THE AHSOKA 
+- All soundtracks from all season - STAR WARS THE ACOLYTE
+- All soundtracks from all season - STAR WARS SKELETON CREW
+- All soundtracks from all season - THE BOOK OF BOBA FETT
+- All soundtracks from all season - STAR WARS TALES OF THE JEDI
+- All soundtracks from all season - STAR WARS BAD BATCH
+- All soundtracks from all season - STAR WARS RESISTANCE
+- All soundtracks from all season - STAR WARS VISIONS 
+- All soundtracks from all season - STAR WARS CLONE WARS
+- All soundtracks from all season - STAR WARS TALES OF THE EMPIRE
+
 
 ---
 
