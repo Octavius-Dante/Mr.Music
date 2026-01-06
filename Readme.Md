@@ -3,7 +3,64 @@
 
 # 
 
+</br></br>
+
+## Audio Downlaoder fro mwebsites 
+
+
+**Music Download - Option # Apple Music**
+
+1. [Locate the Music in - Apple music copy the link](https://music.apple.com/us/new)
+2. [paste the link here and Downlaod](https://aaplmusicdownloader.com/)
+
+## 
+
 </br>
+
+**Music Download - Option # Tamil Only**
+
+- [Only Tamil songs available quality](https://www.masstamilan.dev/)
+
+## 
+
+</br>
+
+**Music Download - Option # SPOTIFY**
+
+1. [Locate the Music in - Spotify music copy the link](https://open.spotify.com/)
+2. [paste the link here and Downlaod](https://spotidownloader.com/en)
+
+##
+
+</br>
+
+**Music Download - Option # GAME Soundtracks Only**
+
+- [Sitting on clouds site](https://www.sittingonclouds.net/)
+
+**Game and other sowundtaracks login required**
+
+- [downloads.khinsider](https://downloads.khinsider.com/)
+
+**Other movies / tv series Sounbdtrack downlaod** 
+
+- [download-soundtracks.com](https://download-soundtracks.com/)
+
+##
+
+**Experimental NEVER TRIED**
+
+- [ okmusi ](https://okmusi.com/top/)
+- [ acethinker ](https://www.acethinker.com/mp3-downloader-1)
+- [Mass downlaod zip file- Soundtracks of MOVIES ](https://download-soundtracks.com/category/movie_soundtracks/)
+- [Mass downlaod zip file- Soundtracks of GAMES ](https://download-soundtracks.com/category/game_sountdtracks/)
+- [ Youtube to mp3](https://loaderr.to/en/)
+- [Download Khinsider - works](https://downloads.khinsider.com/)
+- [Archive.org-Indila music album 2014](https://archive.org/details/indilamusicoggvorbis)
+
+
+
+</br></br>
 
 ### Focus ost list 
 
@@ -18,6 +75,9 @@
 - THE BATMAN
 - THE DARK KNIGHT TRILOGY 
 - BLADE RUNNER 2049 
+
+
+</br></br>
 
 ### Other Notable OST 
 
@@ -34,9 +94,7 @@
 
 
 
-</br>
-
-</br>
+</br></br>
 
 - All soundtracks from all season - Strange things 
 
