@@ -20,16 +20,12 @@
 
 - [Only Tamil songs available quality](https://www.masstamilan.dev/)
 
-## 
-
 </br>
 
 **Music Download - Option # SPOTIFY**
 
 1. [Locate the Music in - Spotify music copy the link](https://open.spotify.com/)
 2. [paste the link here and Downlaod](https://spotidownloader.com/en)
-
-##
 
 </br>
 
@@ -44,8 +40,6 @@
 **Other movies / tv series Sounbdtrack downlaod** 
 
 - [download-soundtracks.com](https://download-soundtracks.com/)
-
-##
 
 **Experimental NEVER TRIED**
 
