@@ -39,7 +39,7 @@
 
 - [Sitting on clouds site](https://www.sittingonclouds.net/)
 
-**Game and other sowundtaracks login required**
+**Game and other soundtaracks login and premium subscription required**
 
 - [downloads.khinsider](https://downloads.khinsider.com/)
 
