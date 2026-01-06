@@ -58,7 +58,6 @@
 - [Archive.org-Indila music album 2014](https://archive.org/details/indilamusicoggvorbis)
 
 
-
 </br></br>
 
 ### Focus ost list 
@@ -75,14 +74,15 @@
 - THE DARK KNIGHT TRILOGY 
 - BLADE RUNNER 2049 
 
-
 </br></br>
 
-### Other Notable OST 
+### Other Notable GAME OST 
 
+- Half life 
 - Half life 2
 - Half life 2 - Episode 1 
 - Half life 2 - Episode 2
+- DOOM 3, DOOM 4, DOOM ETERNAL, DOOM THE DARK AGES
 - Witcher Trilogy (1,2,3) + DLC of withcer 3 OST 
 - God of war Ragnarok
 - God of war (2018)
@@ -91,7 +91,17 @@
 - GTA 5 - RADIO STATIONS + OST
 - GTA VICE CITY - RADIO STATIONS + OST
 
+</br></br>
 
+### Other Notable SOUTH ASIAN MOVIES OST 
+
+- MIRAI (TAMIL) + (TELUGU)
+- KANTHARA 1 + KANTHARA 2 (TAMIL) 
+- KGF 1 + 2 + 3 (TAMIL)
+- LOKAH CHAPTER 1 (MALAYALAM)
+- BAHUBALI 1 , 2 (TAMIL)
+- RRR (TAMIL)
+- KALKI 2898 AD - 1 + 2 (TAMIL) 
 
 </br></br>
 
