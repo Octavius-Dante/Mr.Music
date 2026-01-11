@@ -150,11 +150,7 @@
 - All soundtracks from all season - STAR WARS CLONE WARS
 - All soundtracks from all season - STAR WARS TALES OF THE EMPIRE
 
-
----
-
 </br>
-
 
 ### Famous EDM songs 
 
@@ -165,6 +161,10 @@
 - Rockabye (feat. Sean Paul & Anne-Marie) - Clean Bandit
 
 </br>
+
+
+---
+
 
 picked songs from stranger things 
 
