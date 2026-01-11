@@ -153,6 +153,19 @@
 
 ---
 
+</br>
+
+
+### Famous EDM songs 
+
+- Animal maroon 5
+- Titanium David Guetta
+- Faded Alan walker
+- Lean on - Major lazer
+- Rockabye (feat. Sean Paul & Anne-Marie) - Clean Bandit
+
+</br>
+
 picked songs from stranger things 
 
 ```txt
