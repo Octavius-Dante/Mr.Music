@@ -33,13 +33,13 @@
 
 </br>
 
-**Game and other soundtaracks login and premium subscription required**
+**Outdated old collection - Games and other soundtaracks login and premium subscription required**
 
 - [downloads.khinsider](https://downloads.khinsider.com/)
 
 </br>
 
-**Other movies / tv series Sounbdtrack downlaod** 
+**Mega site # All Games / Movies / Tv series Sounbdtrack download** 
 
 - [download-soundtracks.com](https://download-soundtracks.com/)
 
